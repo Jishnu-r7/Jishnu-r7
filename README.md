@@ -7,6 +7,8 @@
 
 - 📫 How to reach me **jishnu.r7@gmail.com**
 
+- ✌ My resume :<a href="https://rxresu.me/jishnu.r7/jishnu-r" target="_blank" rel="noreferrer"> Here</a>
+
 - ⚡ Fun fact **I am funny, sarcastic and mildly annoying**
 
 <h3 align="left">Connect with me:</h3>
